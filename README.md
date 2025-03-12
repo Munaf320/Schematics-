@@ -1,0 +1,1 @@
+Bose Subwoofer Amplifier circuit
